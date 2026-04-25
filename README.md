@@ -61,7 +61,7 @@ If you take your time and follow the steps we talked about, you’ll be in a muc
 Got a question about how to screen a potential account manager, or still feeling a bit unsure? Drop a comment below—I’d love to help point you in the right direction!
 <h2>Related HashTags</h2>
 #ForexInvestmentManagement #ForexTrading #InvestmentStrategy #WealthManagement #FinancialGrowth #CurrencyTrading #PassiveIncome #ProfessionalTrading #PortfolioManagement #ForexSignals #GlobalMarkets #FinanceTips #InvestmentTrust #AssetManagement #ForexSuccess
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage">@Forex_Fund_Manage</a></span></strong></h3>
